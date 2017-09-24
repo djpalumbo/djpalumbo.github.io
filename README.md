@@ -1,2 +1,0 @@
-# Dave Palumbo's GitHub
-
